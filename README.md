@@ -6,4 +6,4 @@ Phone:+905435759573
 
 Group Member
 Name:Ata Bora Çakmakçı
-ID:
+ID:2445617
